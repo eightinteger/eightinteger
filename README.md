@@ -1,2 +1,4 @@
-![pet-pet-petpet](https://github.com/user-attachments/assets/4eb46eb2-a50c-4871-840b-18968d9e3a36)
-![pet-pet-petpet](https://github.com/user-attachments/assets/1ea4674e-6a70-432c-86cf-32ffe24f90fa)
+https://eightxfohv.straw.page ;; https://fluffybirdyaoi.atabook.org/ ;; https://pronouns.cc/@eightirl
+
+
+![2669888_a03b2](https://github.com/user-attachments/assets/f8e4ac89-10a3-4827-b4f7-afecdb8b3758)
